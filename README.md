@@ -5,3 +5,5 @@ Suwayan ug mugana ba
 
 
 Kenn Gwapo Kaayoooooo 
+
+ayg palag
