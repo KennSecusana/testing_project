@@ -2,6 +2,6 @@
 
 Suwayan ug mugana ba
 
-Kenn Gwapo Kaayo 
 
-way mo palag HAAHAHHAA
+
+Kenn Gwapo Kaayoooooo 
