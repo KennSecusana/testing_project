@@ -6,4 +6,6 @@ Suwayan ug mugana ba
 
 Kenn Gwapo Kaayoooooo 
 
-ayg palag
+ayg palag 
+
+USAPA NA DIHA!
